@@ -1,1 +1,0 @@
-# seosbbs.github.com
